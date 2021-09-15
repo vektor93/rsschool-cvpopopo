@@ -64,4 +64,6 @@ Bachelor, Belarusian State University, Faculty of Radiophysics and Computer Tech
 + Ukrainian
 + English (A2-B1)
 
+Language experience:
+
 Volunteer at the II European Games (services for viewers).
